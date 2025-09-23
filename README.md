@@ -1,3 +1,2 @@
-# koishilocker-v2
-Soo, how is it going?
+# Koishiware
 Work in progress...
