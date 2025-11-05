@@ -1,2 +1,2 @@
-# Koishiware
-Work in progress...
+# KoishiWare
+ITS A VIRUS!!!!
